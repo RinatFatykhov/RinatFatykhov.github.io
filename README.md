@@ -1,0 +1,1 @@
+# RinatFatykhov.github.io
